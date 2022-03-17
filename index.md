@@ -3,4 +3,4 @@
 
 
 ## Having trouble with Hasty Snake App? 
-contact us on [granny_studio@outlook.com](granny_studio@outlook.com) and give us as much information as possible about your problem, we will try to answer your request as soon as possible
+Contact us on [granny_studio@outlook.com](granny_studio@outlook.com) and give us as much information as possible about your problem, we will try to answer your request as soon as possible.
