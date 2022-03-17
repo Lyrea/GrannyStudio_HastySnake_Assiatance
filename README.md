@@ -1,1 +1,1 @@
-# GrannyStudio_HastySnake_Assiatance
+# GrannyStudio_HastySnake_Assistance
